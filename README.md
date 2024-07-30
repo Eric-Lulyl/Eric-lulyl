@@ -1,16 +1,15 @@
-## Hi there 👋
+### Boas vindas ao meu perfil 🐱‍💻
 
-<!--
-**Eric-Lulyl/Eric-lulyl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Eryk Henry Lulyl The Grrandy
 
-Here are some ideas to get you started:
+- Estou realizando um curso profissional na Alura!
+- Eu sou fluente em JavaScript.
+- Utilizo essa rede social para postar meus projetos desenvolvidos.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Patrocinio 📫
+
+000011246668597sp@al.educacao.sp.gov.br
+
+Não aceito patrocionio de empresas pobres 🤗
+
+![](https://media1.tenor.com/m/YBUE51k7Y5QAAAAd/agatah-nunes-ria-agatha-nunes.gif)
