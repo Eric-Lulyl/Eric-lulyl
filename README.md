@@ -12,4 +12,4 @@ Meu nome é Eryk Henry Lulyl The Grrandy
 
 Não aceito patrocionio de empresas pobres 🤗
 
-![](https://tenor.com/pt-BR/view/gretchen-lagosta-gif)
+![](https://media1.tenor.com/m/kuB2GlJJ5aAAAAAC/gretchen-lagosta.gif)
