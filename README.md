@@ -12,4 +12,4 @@ Meu nome é Eryk Henry Lulyl The Grrandy
 
 Não aceito patrocionio de empresas pobres 🤗
 
-![](https://tenor.com/fRECrbusYBu.gif)
+![](https://tenor.com/pt-BR/view/menina-da-bota-meninadabota-bota-menina-bota-meninabota-gif-4785241326027702838)
