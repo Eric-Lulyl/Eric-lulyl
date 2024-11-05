@@ -12,4 +12,4 @@ Meu nome é Eryk Henry Lulyl The Grrandy
 
 Não aceito patrocionio de empresas pobres 🤗
 
-![](https://tenor.com/pt-BR/view/screaming-screams-funny-help-laugh-gif-3041514055406073215)
+![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
