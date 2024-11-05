@@ -13,40 +13,9 @@ Meu nome é Eryk Henry Lulyl The Grrandy
 
 Não aceito patrocionio de empresas pobres 🤗
 
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
+![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif) ![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif) ![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
+ ![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
+ ![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif) ![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
 
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
 
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
 
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
-
-![](https://media1.tenor.com/m/rlUP_PPxZhQAAAAd/bj%C3%B6rk-floptok.gif)
